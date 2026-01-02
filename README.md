@@ -1,0 +1,1 @@
+# finance-bulldog-cz-2026
